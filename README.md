@@ -2,6 +2,8 @@
 
 <img width="1254" height="1254" alt="מפת שבעת הרקיעים" src="https://github.com/user-attachments/assets/639bc9e8-f8dd-48a5-a8b3-df1a738ce99e" />
 
+<img width="1491" height="1055" alt="Seven heavens cosmic map illustration" src="https://github.com/user-attachments/assets/0d898c19-20b1-4e05-8167-d7b4b5be168a" />
+
 
 **תאריך:** יום חמישי, י״ב בסיוון ה׳תשפ״ו | 28 במאי 2026
 **שעה:** 07:54, שעון ישראל
